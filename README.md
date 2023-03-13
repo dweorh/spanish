@@ -30,9 +30,10 @@
 [lyrics](https://lyricstranslate.com/en/creo-en-mi-i-believe-myself.html-1)
 [Quizlet](https://quizlet.com/pl/782745350/es-en-song-natalia-jimenez-creo-en-mi-flash-cards/)
 
-### Najwa - Muñequita Linda
+### Najwa - Muñequita Linda (Cute Little Doll)
 
 [lyrics](https://lyricstranslate.com/en/najwa-nimri-munequita-linda-lyrics.html)
+[Quizlet](https://quizlet.com/pl/783052499/es-en-song-najwa-nimri-munequita-linda-flash-cards/)
 
 ### Aitana - Vas a Quedarte (You'are going to stay)
 
@@ -44,6 +45,7 @@
 [lyrics](https://lyricstranslate.com/en/monotonia-monotony.html-0)
 [Quizlet](https://quizlet.com/pl/782778562/es-en-song-shakira-monotonia-flash-cards/)
 
-### Vicco - Memoria de Pez
+### Vicco - Memoria de Pez (Fish memory)
 
 [lyrics](https://www.musixmatch.com/lyrics/Vicco-4/Memoria-de-Pez)
+[Quizlet](https://quizlet.com/pl/783058126/es-en-song-vicco-memoria-de-pez-flash-cards/)
