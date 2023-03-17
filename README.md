@@ -61,3 +61,33 @@
 
 [lyrics](https://lyricstranslate.com/es/mana-mi-verdad-lyrics.html)
 [Quizlet](https://quizlet.com/pl/783884976/es-en-song-mana-mi-verdad-flash-cards/)
+
+### [Melendi - La Promesa (Promise)](https://www.youtube.com/watch?v=7XPmRUp_Yf4)
+
+[lyrics](https://lyricstranslate.com/es/melendi-la-promesa-lyrics.html)
+[Quizlet](https://quizlet.com/pl/784130737/es-en-song-melendi-la-promesa-flash-cards/)
+
+### [Melendi - Tu jardín con entanitos (Your garden with dwarves)](https://youtu.be/v3-9eDFDAFw)
+
+[lyrics](https://lyricstranslate.com/es/tu-jard%C3%ADn-con-enanitos-your-garden-dwarves.html)
+[Quizlet](https://quizlet.com/pl/784222129/es-en-song-melendi-tu-jardin-con-enanitos-flash-cards/)
+
+### [Ha*Ash - Si yo fuera tú (If I were you)](https://www.youtube.com/watch?v=kdvkskYEcrk)
+
+[lyrics](https://lyricstranslate.com/es/si-yo-fuera-tu-if-i-was-you.html)
+[Quizlet](https://quizlet.com/pl/784366140/es-en-song-haash-so-yo-fuera-tu-if-i-were-you-flash-cards/)
+
+### [Melendi - Destino o Casualidad ft. Ha*Ash (Destiny or coincidence)](https://www.youtube.com/watch?v=D9W4DLjmoOM)
+
+[lyrics](https://lyricstranslate.com/es/destino-o-casualidad-destiny-or-coincidence.html)
+[Quizlet](https://quizlet.com/pl/784401615/es-en-song-melendi-ft-haash-destino-o-casualidad-flash-cards/)
+
+### [La Oreja de Van Gogh - Esa Chica (That Girl)](https://www.youtube.com/watch?v=NQdGLW3RC1c)
+
+[lyrics](https://lyricstranslate.com/es/esa-chica-girl.html)
+[Quizlet](https://quizlet.com/pl/784409671/es-en-song-la-oreja-de-van-gogh-esa-chica-flash-cards/)
+
+### [Juanes - La Camisa Negra (The Black Shirt)](https://www.youtube.com/watch?v=kRt2sRyup6A)
+
+[lyrics](https://lyricstranslate.com/es/la-camisa-negra-black-shirt.html-1)
+[Quizlet](https://quizlet.com/pl/784489463/es-en-song-juanes-la-camisa-negra-flash-cards/)
